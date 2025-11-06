@@ -1,3 +1,4 @@
-Je m'appelle Christia AGBODJOGBE, je suis sur master.
+
+Je m'appelle Christia AGBODJOGBE
 Je suis en L2 IRT.
 J'aime manger.
